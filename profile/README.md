@@ -2,6 +2,8 @@
 
 **Paper.io Online** is an **extreme**, **fast-paced**, and **addictive** multiplayer game that challenges your strategic skills and reflexes. Join millions of players worldwide as you **run**, **dash**, and **conquer** territory in a **classic** yet thrilling **arcade** adventure!
 
+## <a href="https://1kb.link/fNE8l1">👉 Click To Play Paper.io Unblocked Games 👈</a>
+
 ### What is Paper.io Online?
 
 Paper.io Online is a **multiplayer** **arena** game where your goal is to **explore**, **expand**, and **defend** your territory against other players in real time. Using simple controls, you **run** your character around a grid-like map, **drawing** shapes to claim land while avoiding enemies who want to **smash** your progress.
